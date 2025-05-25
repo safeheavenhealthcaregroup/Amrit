@@ -46,8 +46,8 @@ Check out the demo:
 
 For any inquiries or feedback, feel free to reach out:
 
-- **Email**: [raghavlove304@gmail](mailto:raghavlove304@gmail.com)
-- **LinkedIn**: [Aayush Bharti on LinkedIn](https://www.linkedin.com/in/iaayushbharti/)
+- **Email**: [raghavlove304@gmail.com](mailto:raghavlove304@gmail.com)
+- **LinkedIn**: [Aryan Thakur on LinkedIn](https://www.linkedin.com/in/iaayushbharti/)
 
 ---
 
